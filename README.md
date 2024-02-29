@@ -1,10 +1,10 @@
 
-818娱乐网-扒出最近爆的娱乐吃瓜
+818吃瓜-扒出最近爆的娱乐吃瓜
 
 永久入口  https://818.cool
 永久主页 https://818ylw.com
 
-娱乐大瓜频道   https://t.me/yulewang818
+吃瓜频道   https://t.me/yulewang818
 官方吹水群   https://t.me/bayibayulew
 
 有偿收稿
