@@ -1,10 +1,10 @@
 
-818吃瓜-为吃瓜群众提供最新最热最全面的吃瓜内容	
+17吃瓜-为吃瓜群众提供最新最热最全面的吃瓜内容	
 
 永久入口：https://818.cool
 永久主页 https://818ylw.com
 
-国内最新入口链接：https://icg01.com
+国内最新入口链接：https://icg02.com
 
 吃瓜频道   https://t.me/yulewang818
 官方吹水群   https://t.me/bayibayulew
